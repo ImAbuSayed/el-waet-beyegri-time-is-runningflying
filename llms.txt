@@ -19,7 +19,10 @@
 
 ## Excerpt
 
-> [Clean lyric will be pushed here]
+> نار الشوق في قلبي تنادي عليك
+> روحي تذوب في سحر عينيك
+> أنا بين يديك في هذا الليل
+> دعنا نضيع بلا أي دليل
 > ...
 
 [View Full Lyrics ->](./lyrics.txt)
